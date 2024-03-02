@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **lakshitkumar220@gmail.com**
 
-- ⚡ Fun fact **I know I an best**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
